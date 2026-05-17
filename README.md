@@ -1,5 +1,7 @@
-## Hi there 👋
+wip profile!!!
 
+Hii I'm Mason :3c
+I'll fix this later!
 <!--
 **masonissokakkoii/masonissokakkoii** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
