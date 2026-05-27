@@ -1,3 +1,4 @@
+<img src="(https://files.catbox.moe/olkk3e.png)"/>
 <p align="center"><img width="200" height="200" alt="azulgithub" src="https://github.com/user-attachments/assets/c410873f-ded8-4056-a9bd-414207cfdf66" margin="auto"/></p>
 
 <p style="color: red">mason</p>
