@@ -33,6 +33,6 @@
 <p>But even them I'm really awkward. Like if i see you on map I'll genuinely hide I'm kind of a #wuss.</p>
 <p>I'm just not the most sociable person in general buuut I'm using Pony Town to practice</p>
 <p>I'm in regiments sooou if i have to leave but i still appear online, that's why</p>
-<p>I'm usually in "cosplay"; OCs are for when I'm in a RP</p>
 
+<p>IF YOU KNOW ME FROM TWISTED WONDERLAND AREA: I ACCIDENTALLY OVERWROTE MY FREAKING AZUL PONY SO I HAVE TO REMAKE HIM. sighs. i'm going around as just idia right now... .. ...ew........</p>
 
