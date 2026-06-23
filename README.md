@@ -29,9 +29,11 @@
 <li>spam in my whispers</li>
 </ul>
 
-<p>I don't really ehmmmm interact with friends that add me only because of my skin or because we interacted in a roleplay I'm sorry. I feel awkward and also it's likely that the friend is busy with other people. Please keep this in mind if you wanna add me as a friend,, alos i remove friends if they're inactive for too long/lowkey don't remember who they are.</p>
-<p>But even them I'm really awkward. Like if i see you on map I'll genuinely hide I'm kind of a #wuss.</p>
-<p>I'm just not the most sociable person in general buuut I'm using Pony Town to practice</p>
-<p>I'm in regiments sooou if i have to leave but i still appear online, that's why</p>
-<p>Also like. I host a roleplay called. seacrystal high... .. .say hi if you recognize me #ok<p>
+<p>I don't really ehmmmm interact with friends that add me only because of my skin or because we interacted in a roleplay, I'm sorry. I feel awkward and also it's likely that the friend is busy with other people. Please keep this in mind if you wanna add me as a friend,, I'll also mention that I remove friends if they're inactive for too long/lowkey don't remember who they are.</p>
+<p>But even then I'm really awkward. Like if i see you on map I'll genuinely hide I'm kind of a #wuss. Unless you whisper to me I won't reach out</p>
+
+<p>other things to mention</p>
+<p>I'm just not the most sociable person in general but I'm using Pony Town to practice</p>
+<p>I'm in regiments so if I have to leave but i still appear online, that's why</p>
+<p>Also like. I host a roleplay called. seacrystal high... .. .say hi if you recognize me #ok I just join a lot of school roleplays and have like one human oc sighs<p>
 
