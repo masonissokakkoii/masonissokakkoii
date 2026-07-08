@@ -1,39 +1,12 @@
-<img src="(https://files.catbox.moe/olkk3e.png)"/>
-<p align="center"><img width="200" height="200" alt="azulgithub" src="https://github.com/user-attachments/assets/c410873f-ded8-4056-a9bd-414207cfdf66" margin="auto"/></p>
+### mason
 
-<p style="color: red">mason</p>
-<p>age: 15</p>
-<p>timezone: pst</p>
-<p>i will update this later to look "aesthetic" or wtv I dont know Okai. in the meantime check my straw ok. and sign my atabook. Ok.</p>
-<p>I'll follow back if i think you're cool ok ya</p>
+15 - pst - he / him <b>only</b>
+
+haihai... I join mostly roleplays but sometimes I'm lingering around as Twisted Wonderland, Saiki K., or something else I'm into. I host my own school roleplay and join school roleplays most of the time so you might see me frequently.
+
+I'm somewhat active in regiscouts right now, most notably SWC (Sweet Cakes) and WaBr (WaveBreakers). Most of the time, regis require me to join another server or become busy with something else. If we are talking / interacting and I leave all of a sudden but still appear active, that would be why.
+
+I'm using Pony Town to practice socialising in a way that wouldn't affect me deeply if I mess up. So, please feel free to talk to me.
 
 
-<P>BASIC INFO</P>
-<p>Ueee this is for ponytown btw!</p>
-<p>I APPRECIATE:</p>
-<ul>
-<li>short interactions</li>
-<li>fun small talk</li>
-<li>cuddle/hiding (i encourage!!! ask though ^_^)</li>
-<li>boop</li>
-</ul>
-
-<p>I'M OKAY WITH:</p>
-<ul>
-<li>basically any other pt option for interacting (e.g. kiss or like. sneezing on me)</li>
-</ul>
-
-<p>PLEASE DON'T:</p>
-<ul>
-<li>boop battle (/lh, just boring to me)</li>
-<li>spam in my whispers</li>
-</ul>
-
-<p>I don't really ehmmmm interact with friends that add me only because of my skin or because we interacted in a roleplay, I'm sorry. I feel awkward and also it's likely that the friend is busy with other people. Please keep this in mind if you wanna add me as a friend,, I'll also mention that I remove friends if they're inactive for too long/lowkey don't remember who they are.</p>
-<p>But even then I'm really awkward. Like if i see you on map I'll genuinely hide I'm kind of a #wuss. Unless you whisper to me I won't reach out</p>
-
-<p>other things to mention</p>
-<p>I'm just not the most sociable person in general but I'm using Pony Town to practice</p>
-<p>I'm in regiments so if I have to leave but i still appear online, that's why</p>
-<p>Also like. I host a roleplay called. seacrystal high... .. .say hi if you recognize me #ok I just join a lot of school roleplays and have like one human oc sighs<p>
 
