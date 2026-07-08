@@ -8,5 +8,6 @@ I'm somewhat active in regiscouts right now, most notably SWC (Sweet Cakes) and 
 
 I'm using Pony Town to practice socialising in a way that wouldn't affect me deeply if I mess up. So, please feel free to talk to me.
 
+I can't be bothered to make this look nicer I can't find any tutorials that show what I'm looking for T^T... 
 
 
