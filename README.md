@@ -2,7 +2,7 @@
 
 15 - pst - he / him <b>only</b>
 
-haihai... I join mostly roleplays but sometimes I'm lingering around as Twisted Wonderland, Saiki K., or something else I'm into. I host my own school roleplay and join school roleplays most of the time so you might see me frequently.
+haihai... I join mostly roleplays but sometimes I'm lingering around as Twisted Wonderland, Saiki K., or something else I'm into. I host my own school roleplay and join school roleplays most of the time so you might see me frequently if you're into that.
 
 I'm somewhat active in regiscouts right now, most notably WaBr (WaveBreakers). Most of the time, regis require me to join another server (as in Safe Server 2, Safe Chinese, Safe Russian, etc... not Discord servers) or become busy with something else. If we are talking / interacting and I leave all of a sudden but still appear active, that would be why.
 
